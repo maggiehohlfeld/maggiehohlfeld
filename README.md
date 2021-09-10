@@ -1,5 +1,5 @@
 ### Hi there 👋
-I'm Maggie, a Sr. Program Manager at GitHub on the Engineering Ops team. I like to get things done and have fun along the way. What does that mean exactly? I try to bring a sense of humor--and humility--to everything that I do. 
+I'm Maggie, a Sr. Program Manager at GitHub on the Engineering Ops team. I like to get things done and have fun along the way. Meaning I try to bring a sense of humor--and humility--to everything that I do. 
 
 Outside of work, I love:
 - 📝 Creative writing. I have been working on a novel for a few years now. One day I'll finish it. One day...
