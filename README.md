@@ -4,4 +4,5 @@ I'm Maggie, a Sr. Program Manager at GitHub on the Engineering Ops team. I like 
 Outside of work, I love:
 - 📝 Creative writing. I have been working on a novel for a few years now. One day I'll finish it. One day...
 - 🐶 Dogs. I have a pug that I adore, and generally love all dogs. 
+- 🤓 Trivia nights around Austin... even if I'm terrible at them. 
 - 📺 And of course, watching Netflix, YouTube, Hulu, etc.
